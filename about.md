@@ -10,15 +10,11 @@ Zoharks, the name that echoes in the art world, is a multi-talented personality 
 
 Zoharks has been associated with several notable galleries and platforms, including Deca.art, Oncyber VR Gallery, and his own Zoharks Gallery. He has organized numerous exhibitions and showcases that have provided artists with a platform to showcase their work to a wider audience Apart from his curation skills, Zoharks is also a prolific writer who has written extensively about art, AI, and NFTs. His writings have been published in various publications and have been recognized for their insightful and thought-provoking content.
 
-![01B0F65C-5A5A-4F5B-8DC8-B1B098783FF6.jpeg](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/1a35871b-d91b-421a-8452-b6e7e52511c0/01B0F65C-5A5A-4F5B-8DC8-B1B098783FF6.jpeg)
-
 Zoharks is also a keen collector who has an eye for exceptional pieces of art. His collection of NFTs and digital art is a testament to his impeccable taste and his ability to identify unique and valuable pieces.
 
 As an expert in the field of art, Zoharks has also contributed to the growth and development of the industry. He has conducted user research that has helped artists and collectors understand the market better.
 
 Zoharks' Journal is a must-read for anyone interested in the art world. It provides valuable insights, updates, and news about the latest trends and developments in the industry. Zoharks' dedication, passion, and hard work have made him a prominent figure in the art world. His contributions to the industry have been invaluable, and his legacy will continue to inspire and influence future generations.
-
-![22230318-792B-4AF9-A588-FB80B466D71D.jpeg](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/67a71c49-c66e-4323-a5ac-3fc7cbe337d8/22230318-792B-4AF9-A588-FB80B466D71D.jpeg)
 
 Zoharks' expertise in the Digital art industry, which is very impactful on the art world is undeniable, and his name is synonymous with innovation and excellence. His unique perspective and expertise have made him a sought-after speaker and advisor for artists, collectors, and industry professionals alike. As he continues to push the boundaries of what is possible in the world of art, Zoharks is sure to remain a driving force in the industry for years to come.
 
