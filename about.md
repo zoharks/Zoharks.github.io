@@ -30,9 +30,5 @@ Zoharks Gallery is a testament to Zoharks' dedication to the art world. Through 
 
 A place to include any other types of information that you'd like to include about yourself.
 
-*italic*
-**bold**
-
-[github!](https://github.com/)
 
 [email@domain.com](mailto:contactzoharks@sudomail.com)
