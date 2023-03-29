@@ -10,8 +10,6 @@ title: Art History 101 Frans Snyder
          Art History 101: Frans Snyder
      </h1>
     </a>
-     
-     
      </body>
   </html>
   
