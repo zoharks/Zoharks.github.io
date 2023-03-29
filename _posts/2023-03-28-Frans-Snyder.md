@@ -1,5 +1,5 @@
 ---
 layout: post
-title: Art History 101: Frans Snyder
+title: Art History 101- Frans Snyder
 ---
 
