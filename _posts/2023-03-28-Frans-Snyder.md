@@ -2,12 +2,7 @@
 layout: post
 ---
 
- <html>
-      <head>
-          <title>
-           Art History 101: Frans Snyder
-       </title>
-           </head>
+
        <body>
       <h1>
        Art History 101: Frans Snyder
@@ -15,6 +10,6 @@ layout: post
          Follow Link 
      </h1>
     </a>  
-  </html>
+
   
        
